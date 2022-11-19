@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ravijulian
-- 👀 I’m interested in arts and graphic design
-- 🌱 I’m currently learning business design
+- 👀 I’m interested in technology and design
+- 🌱 I’m currently learning visual communication design and computer science
 - 💞️ I’m looking to collaborate on design work
 - 📫 How to reach me, contact my e-mail, hark7536@gmail.com
 
